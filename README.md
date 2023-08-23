@@ -1,1 +1,1 @@
-# xungdot my github
+# xungdot my computer
